@@ -50,7 +50,7 @@ I can do it! :joy:
 
 Soon I will give you a link of my Website. For now, just check this up: 
 
-[My Masters project](http://etd.uwc.ac.za/xmlui/handle/11394/8/browse?value=Ufitamahoro%2C+Marie+Jos%C3%A9e&type=author)
+[My school project](http://etd.uwc.ac.za/xmlui/handle/11394/8/browse?value=Ufitamahoro%2C+Marie+Jos%C3%A9e&type=author)
 
 
 
