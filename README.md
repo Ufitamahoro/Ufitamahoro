@@ -1,4 +1,5 @@
 - 👋 Hi, I’m Marie Josée Ufitamahoro
+- You can call me Josee or just Joe
 - 👀 I’m interested in the Dev environment
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on different projects
