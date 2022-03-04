@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Marie Josée Ufitamahoro
 - You can call me Josée or just Joe
-- 👀 I’m interested in the Dev environment
+- 👀 I’m interested in Dev
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on different projects
 - 📫 How to reach me on 0491111907 or by mjufitamahoro@gmail.com
